@@ -1,1 +1,9 @@
 # DigitalClock
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
+![alt image](https://github.com/romannomad/StoryGenerator/blob/master/13.png)
